@@ -1,1 +1,1 @@
-# first-power-bi-progect
+[# first-power-bi-progect](https://lnkd.in/dahHYdSi)
